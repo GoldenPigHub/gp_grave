@@ -1,5 +1,5 @@
 # GP_GRAVE
-### Preview -->> https://streamable.com/4qmy7e
+### Preview -->> https://youtu.be/1R3uTw0s7Gw
 #### QBR | Dig graves and find valuables
 
 #### Requirements
